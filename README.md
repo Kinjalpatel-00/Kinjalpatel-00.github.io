@@ -1,1 +1,0 @@
-# Kinjalpatel-00.github.io
